@@ -1,3 +1,1 @@
 # fethiyevoyagehugo
-# fethiyevoyagehugo
-# fethiyevoyagehugo
